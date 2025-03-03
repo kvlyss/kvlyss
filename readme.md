@@ -1,4 +1,4 @@
-![prez](https://raw.githubusercontent.com/kvlyss/kvlyss/main/prez.jpg)
+![prez](https://raw.githubusercontent.com/kvlyss/kvlyss/main/prezz.jpg)
 
 
 ## À propos de moi
